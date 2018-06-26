@@ -1,1 +1,1 @@
-####This branch is about Doogs. We need more dog pictures.
+####This branch is about Dogs. We need more dog pictures.
